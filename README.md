@@ -1,4 +1,4 @@
 
-# Hey, I'm Eduardo Viter 👋
+Hey, I'm Eduardo Viter 👋
 
 https://eduardoviter.com/
